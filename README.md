@@ -1,4 +1,4 @@
-# honorbox
+# HonorBox
 
 ## Introduction
 
