@@ -9,7 +9,7 @@
 
 ### Shared abundance / Gift Economy
 
-* 80% of the people don't fee engaged with their jobs
+* 80% of the people don't feel engaged with their jobs
 * It's easy to find investment for a profitable business
 * It's hard to finance non-profitable projets
 * Money should go to people that really need it
